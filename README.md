@@ -1,1 +1,1 @@
-http://txti.es/nathilinks
+https://linktr.ee/nathidraws
